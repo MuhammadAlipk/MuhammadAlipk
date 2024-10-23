@@ -1,4 +1,4 @@
-# Muhammad Ali - SQA Automation Engineer 👨‍💻  
+# Muhammad Ali - Lead SQA Automation Engineer 👨‍💻  
 
 **📍 Location:** Punjab, Pakistan  
 **📧 Contact:**  [LinkedIn](https://www.linkedin.com/in/sqa-automation-engineer) | m.ali.saif12@gmail.com  
